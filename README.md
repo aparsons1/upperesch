@@ -1,2 +1,2 @@
 # upperesch
-no fucking idea yet
+no idea yet
